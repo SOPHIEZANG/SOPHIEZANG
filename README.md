@@ -1,3 +1,6 @@
+## Sophie Hanfen Zang
+
+i am a freelancer and working at home , i like to find what i like and love! check my goole profiles
 ### Hi there 👋
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
